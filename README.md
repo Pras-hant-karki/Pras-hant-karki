@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Pras-hant-karki
-- 👀 I’m interested in art & gym
+- 👀 I’m interested in art, gym & Nutrition
 - 🌱 I’m currently learning BSc HONs computing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: Instagram: bulky_bird.821
+- 📫 How to reach me: Instagram: 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
